@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sehassenhiru27@gmail.com**
 
-- ⚡ Fun fact **I am not alone**
+- ⚡ Fun fact **I HAVE ADHD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
